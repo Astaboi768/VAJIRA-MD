@@ -1,4 +1,4 @@
-👨‍💻 ＶＡＪＩＲＡ - ＭＤ - Ｖ5 (CREDS.JSON UPLOAD FOLDER) 👨‍💻
+👨‍💻 ＶＡＪＩＲＡ - ＭＤ - Ｖ5 (CREDS.JSON VAJIRA-MD=HZVTyCbC#NRackSoVA_5xT2WY_eSspi0BW0WZb7mfE8q3BUBa6Bs) 👨‍💻
 
 ᴍʏ ʟᴀꜱᴛ ᴜᴘᴅᴀᴛᴇ ᴏꜰ ᴠᴀᴊɪʀᴀ ᴍᴅ ᴍᴜʟᴛɪ-ᴅᴇᴠɪᴄᴇ ʙᴏᴛ.....
 
